@@ -2,7 +2,7 @@
 
 You can call me Xinyi (Shin-yi) or Tony :)
 
-🎓 **Master of Information Technology @ The University of Melbourne** (Expected Dec 2025)  
+🎓 **Master of Information Technology @ The University of Melbourne**
 🎓 **BSc (Hons) in Computer Science, Minor in Management @ University of Ottawa** (Cum Laude)  
 
 🌐 Personal Website: [tonyxyz.com](https://tonyxyz.com)  
